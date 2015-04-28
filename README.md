@@ -5,5 +5,6 @@ Songs where they say the (current) year in the lyrics
 - 1989 Public Enemy - Fight the Power
 - 1994
 - 1995 Tupac - California Lovin
-- 2008
+- 2008 Fergie (unknown)
 - 2009  Die Antwoord - Enter the Ninja
+- 2014 RJD2(unknown)
