@@ -3,6 +3,7 @@ Songs where they say the (current) year in the lyrics
 
 - 1969 Iggy Pop - 1969
 - 1981 Public Image Ltd - 1981
+- 1984 2 Live Crew - The Revelation
 - 1988 Big Daddy Kane - Ain't no Half-Steppin
 - 1989 Public Enemy - Fight the Power
 - 1991 NWA - Alwayz into somethin
