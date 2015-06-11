@@ -11,7 +11,7 @@ Songs where they say the (current) year in the lyrics
 - 1991 NWA - Alwayz into somethin
 - 1992 A Tribe Called Quest - Scenario (remix)
 - 1993 WuTang - Can it all be so simple; Souls of Mischief - 93 'til Infinity; Hieroglyphics - You Never Know
-- 1994
+- 1994 69 Boyz - Tootsee Roll
 - 1995 Tupac - California Lovin
 - 1997 WuTang - Triumph
 - 1999 Juvenille - Back that ass up
