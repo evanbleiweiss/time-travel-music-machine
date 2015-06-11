@@ -8,6 +8,7 @@ Songs where they say the (current) year in the lyrics
 - 1984 2 Live Crew - The Revelation
 - 1988 Big Daddy Kane - Ain't no Half-Steppin
 - 1989 Public Enemy - Fight the Power
+- 1990 Public Enemy - Reggie Jax
 - 1991 NWA - Alwayz into somethin
 - 1992 A Tribe Called Quest - Scenario (remix)
 - 1993 WuTang - Can it all be so simple; Souls of Mischief - 93 'til Infinity; Hieroglyphics - You Never Know
