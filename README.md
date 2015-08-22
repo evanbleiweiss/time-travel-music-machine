@@ -14,6 +14,7 @@ Songs where they say the (current) year in the lyrics
 - 1993 WuTang - Can it all be so simple; Souls of Mischief - 93 'til Infinity; Hieroglyphics - You Never Know
 - 1994 69 Boyz - Tootsee Roll
 - 1995 Tupac - California Lovin; 311 - Hive
+- 1996 Underground Kings - Fuck my car
 - 1997 WuTang - Triumph
 - 1998 Peter and the Test Tube Babies - Twenty Years
 - 1999 Juvenille - Back that ass up
