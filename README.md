@@ -10,7 +10,7 @@ Songs where they say the (current) year in the lyrics
 - 1989 Public Enemy - Fight the Power
 - 1990 Public Enemy - Reggie Jax
 - 1991 NWA - Alwayz into somethin
-- 1992 A Tribe Called Quest - Scenario (remix); Dr. Dre - Fuck Wit Dre Day (And Everybody's Celebratin')
+- 1992 A Tribe Called Quest - Scenario (remix); Dr. Dre - Fuck Wit Dre Day (And Everybody's Celebratin'), Lyrical Gangbang
 - 1993 WuTang - Can it all be so simple; Souls of Mischief - 93 'til Infinity; Hieroglyphics - You Never Know
 - 1994 69 Boyz - Tootsee Roll
 - 1995 Tupac - California Lovin; 311 - Hive
