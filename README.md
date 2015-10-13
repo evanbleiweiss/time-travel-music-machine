@@ -5,10 +5,10 @@ Songs where they say the (current) year in the lyrics
 - Iggy Pop - 1969
 
 ### 1979
-- 1979 Adicts - Get Adicted
+- Adicts - Get Adicted
 
 ### 1981
-- 1981 Public Image Ltd - 1981
+- Public Image Ltd - 1981
 
 ### 1982
 - Abrasive Wheels - 1982
@@ -34,7 +34,7 @@ Songs where they say the (current) year in the lyrics
 - Dr. Dre - Lyrical Gangbang
 
 ### 1993
-- 1993 WuTang - Can it all be so simple 
+- WuTang - Can it all be so simple 
 - Souls of Mischief - 93 'til Infinity
 - Hieroglyphics - You Never Know
 
