@@ -54,6 +54,7 @@ Songs where they say the (current) year in the lyrics
 - WuTang - Triumph
 
 ### 1998
+- Black Star - B Boys Will B Boys
 - Peter and the Test Tube Babies - Twenty Years
 
 ### 1999
