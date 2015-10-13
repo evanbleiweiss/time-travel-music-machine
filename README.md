@@ -61,6 +61,10 @@ Songs where they say the (current) year in the lyrics
 - Juvenille - Back that ass up
 - Dr. Dre - Still D.R.E.
 
+### 2003
+- Eminem - Go to Sleep
+- Lil Kim - The Jump Off 
+
 ### 2009
 - Die Antwoord - Enter the Ninja
 
