@@ -67,7 +67,7 @@ Songs where they say the (current) year in the lyrics
 
 ### 2009
 - Die Antwoord - Enter the Ninja
-
+- Underground Kingz - Intro
 
 - 2008 Fergie (unknown)
 - 2014 RJD2(unknown)
