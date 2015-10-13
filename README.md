@@ -17,7 +17,8 @@ Songs where they say the (current) year in the lyrics
 - 1996 Underground Kingz - Fuck my car, Outro, Pinky Ring
 - 1997 WuTang - Triumph
 - 1998 Peter and the Test Tube Babies - Twenty Years
-- 1999 Juvenille - Back that ass up
+- 1999 Juvenille - Back that ass up; Dr. Dre - Still D.R.E.  
+
 - 2008 Fergie (unknown)
 - 2009  Die Antwoord - Enter the Ninja
 - 2014 RJD2(unknown)
