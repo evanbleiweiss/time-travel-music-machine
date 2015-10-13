@@ -60,6 +60,7 @@ Songs where they say the (current) year in the lyrics
 ### 1999
 - Juvenille - Back that ass up
 - Dr. Dre - Still D.R.E.
+- Mobb Deep - It's Mine
 
 ### 2003
 - Eminem - Go to Sleep
