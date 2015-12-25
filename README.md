@@ -44,6 +44,7 @@ Songs where they say the (current) year in the lyrics
 ### 1995
 - Tupac - California Lovin
 - 311 - Hive
+- Pharcyde - Runnin
 
 ### 1996
 - Underground Kingz - Fuck my car
