@@ -1,8 +1,23 @@
 # time-travel-music-machine
 Songs where they say the (current) year in the lyrics
 
+### 1964
+- Jim Nesbitt - Looking For More In '64
+
+### 1965
+- Jim Nesbitt - Still Alive in '65
+
+### 1966
+- Jim Nesbitt - Heck of a Fix in 66
+
+### 1968
+- Jim Nesbitt - Clean the Slate in '68
+
 ### 1969
 - Iggy Pop - 1969
+
+### 1971
+- Jim Nesbitt - Havin' Fun in '71
 
 ### 1979
 - Adicts - Get Adicted
