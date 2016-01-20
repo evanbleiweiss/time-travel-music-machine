@@ -77,6 +77,7 @@ Songs where they say the (current) year in the lyrics
 - Juvenille - Back that ass up
 - Dr. Dre - Still D.R.E.
 - Mobb Deep - It's Mine
+- MF Doom - Rhymes Like Dimes
 
 ### 2003
 - Eminem - Go to Sleep
