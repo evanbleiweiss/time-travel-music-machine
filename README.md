@@ -81,13 +81,15 @@ Songs where they say the (current) year in the lyrics
 - Mobb Deep - It's Mine
 - MF Doom - Rhymes Like Dimes
 
+### 2000
+- The Notorious B.I.G. - Notorious B.I.G.* (December 7, 1999)
+
 ### 2003
 - Eminem - Go to Sleep
 - Lil Kim - The Jump Off 
 
 ### 2008
 - Black Eyed Peas - Boom Boom Pow 
-
 
 ### 2009
 - Die Antwoord - Enter the Ninja
