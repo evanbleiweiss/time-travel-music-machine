@@ -73,7 +73,7 @@ Songs where they say the (current) year in the lyrics
 - Black Star - B Boys Will B Boys
 - Peter and the Test Tube Babies - Twenty Years
 - Mr. Shadow - 61909 [featuring O.D.M.]
-
+- Rancid - 1998
 
 ### 1999
 - Juvenille - Back that ass up
