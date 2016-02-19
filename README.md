@@ -65,6 +65,8 @@ Songs where they say the (current) year in the lyrics
 - Underground Kingz - Fuck my car
 - Underground Kingz - Outro
 - Underground Kingz - Pinky Ring
+- Outkast - Decatur Psalm
+- Outkast - 13th Floor/Growing Old
 
 ### 1997
 - WuTang - Triumph
