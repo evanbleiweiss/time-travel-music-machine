@@ -33,6 +33,8 @@ Songs where they say the (current) year in the lyrics
 
 ### 1988
 - Big Daddy Kane - Ain't no Half-Steppin
+- [Boogie Down Productions - My Philosophy] (http://genius.com/Boogie-down-productions-my-philosophy-lyrics)
+
 
 ### 1989
 - Public Enemy - Fight the Power
