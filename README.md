@@ -99,3 +99,7 @@ Songs where they say the (current) year in the lyrics
 
 ### 2014 
 - RJD2(unknown)
+
+### 2015
+- Kendrick Lamar - The Blacker the Berry
+
