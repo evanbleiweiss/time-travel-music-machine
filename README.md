@@ -84,6 +84,8 @@ Songs where they say the (current) year in the lyrics
 - Dr. Dre - Still D.R.E.
 - Mobb Deep - It's Mine
 - MF Doom - Rhymes Like Dimes
+- Missy Elliott - Mysterious (Intro)
+- Missy Elliott - Stickin' Chickens
 
 ### 2000
 - The Notorious B.I.G. - Notorious B.I.G.* (December 7, 1999)
