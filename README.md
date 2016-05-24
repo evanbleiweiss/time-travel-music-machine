@@ -94,6 +94,9 @@ Songs where they say the (current) year in the lyrics
 - Eminem - Go to Sleep
 - Lil Kim - The Jump Off 
 
+### 2006
+- [T.I. - I'm Talkin' To You](http://genius.com/Ti-im-talkin-to-you-lyrics)
+
 ### 2008
 - Black Eyed Peas - Boom Boom Pow 
 
