@@ -103,6 +103,8 @@ Songs where they say the (current) year in the lyrics
 
 ### 2008
 - Black Eyed Peas - Boom Boom Pow 
+- [Bun B - Angel in the Sky](http://genius.com/Bun-b-angel-in-the-sky-lyrics)
+
 
 ### 2009
 - Die Antwoord - Enter the Ninja
