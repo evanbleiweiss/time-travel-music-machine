@@ -110,6 +110,9 @@ Songs where they say the (current) year in the lyrics
 - Die Antwoord - Enter the Ninja
 - Underground Kingz - Intro
 
+### 2010
+- [Bun B - Chuuch!!!](http://genius.com/Bun-b-chuuch-lyrics)
+
 ### 2014 
 - T.I. - You Can Tell How I Walk
 - RJD2(unknown)
