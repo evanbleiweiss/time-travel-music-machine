@@ -112,6 +112,7 @@ Songs where they say the (current) year in the lyrics
 
 ### 2010
 - [Bun B - Chuuch!!!](http://genius.com/Bun-b-chuuch-lyrics)
+- [Bun B - Countin' Money](http://genius.com/Bun-b-countin-money-lyrics)
 
 ### 2014 
 - T.I. - You Can Tell How I Walk
