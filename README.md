@@ -69,6 +69,7 @@ Songs where they say the (current) year in the lyrics
 - Underground Kingz - Pinky Ring
 - Outkast - Decatur Psalm
 - Outkast - 13th Floor/Growing Old
+- Tupac - Picture me Rollin
 
 ### 1997
 - WuTang - Triumph
@@ -100,6 +101,9 @@ Songs where they say the (current) year in the lyrics
 
 ### 2006
 - [T.I. - I'm Talkin' To You](http://genius.com/Ti-im-talkin-to-you-lyrics)
+
+### 2007
+- [Trae the Truth - Picture me Rollin'](https://www.youtube.com/watch?v=OG5-O6pK6CU) _sounds like 2007, not sure_
 
 ### 2008
 - Black Eyed Peas - Boom Boom Pow 
