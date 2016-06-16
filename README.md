@@ -84,6 +84,8 @@ Songs where they say the (current) year in the lyrics
 - Peter and the Test Tube Babies - Twenty Years
 - Mr. Shadow - 61909 [featuring O.D.M.]
 - Rancid - 1998
+- Juvenile - Flossin Season
+
 
 ### 1999
 - Juvenille - Back that ass up
