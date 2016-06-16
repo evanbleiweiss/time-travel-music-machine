@@ -38,6 +38,7 @@ Songs where they say the (current) year in the lyrics
 
 ### 1989
 - Public Enemy - Fight the Power
+- [Geto Boys - Seek and Destroy](http://genius.com/Geto-boys-seek-and-destroy-lyrics)
 
 ### 1990
 - Public Enemy - Reggie Jax
