@@ -46,6 +46,7 @@ Songs where they say the (current) year in the lyrics
 
 ### 1991
 - NWA - Alwayz into somethin
+- Geto Boys - We Can't Be Stopped
 
 ### 1992 
 - A Tribe Called Quest - Scenario (remix)
