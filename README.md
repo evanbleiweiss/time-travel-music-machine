@@ -34,7 +34,7 @@ Songs where they say the (current) year in the lyrics
 ### 1988
 - Big Daddy Kane - Ain't no Half-Steppin
 - [Boogie Down Productions - My Philosophy] (http://genius.com/Boogie-down-productions-my-philosophy-lyrics)
-
+- [Public Enemy - Don't Believe the Hype]  (http://genius.com/Public-enemy-dont-believe-the-hype-lyrics)
 
 ### 1989
 - Public Enemy - Fight the Power
@@ -47,6 +47,8 @@ Songs where they say the (current) year in the lyrics
 ### 1991
 - NWA - Alwayz into somethin
 - Geto Boys - We Can't Be Stopped
+- Geto Boys - Ain't With Being Broke
+- Geto Boys - The Other Level
 
 ### 1992 
 - A Tribe Called Quest - Scenario (remix)
