@@ -75,9 +75,13 @@ Songs where they say the (current) year in the lyrics
 - Outkast - Decatur Psalm
 - Outkast - 13th Floor/Growing Old
 - Tupac - Picture me Rollin
+- [DJ Screw - Pimp Tha Pen] (http://genius.com/Dj-screw-pimp-tha-pen-lyrics)
+
 
 ### 1997
 - WuTang - Triumph
+- Lil Keke - Still Pimping The Pens
+
 
 ### 1998
 - Black Star - B Boys Will B Boys
@@ -124,6 +128,7 @@ Songs where they say the (current) year in the lyrics
 ### 2010
 - [Bun B - Chuuch!!!](http://genius.com/Bun-b-chuuch-lyrics)
 - [Bun B - Countin' Money](http://genius.com/Bun-b-countin-money-lyrics)
+- [Lil' Keke - Freestyle](https://www.youtube.com/playlist?list=PL46173933CD154485)
 
 ### 2013
 - [Travis Barker - Cuz I'm Famous](http://genius.com/Travis-barker-cuz-im-famous-lyrics)
