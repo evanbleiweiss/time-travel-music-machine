@@ -19,6 +19,9 @@ Songs where they say the (current) year in the lyrics
 ### 1971
 - Jim Nesbitt - Havin' Fun in '71
 
+### 1972
+- Bob Seger - Back in '72
+
 ### 1979
 - Adicts - Get Adicted
 
