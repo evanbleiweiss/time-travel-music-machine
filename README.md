@@ -67,6 +67,7 @@ Songs where they say the (current) year in the lyrics
 - Tupac - California Lovin
 - 311 - Hive
 - Pharcyde - Runnin
+- [Lost Boyz - Jeeps, Lex Coups, Bimaz & Benz] (http://genius.com/Lost-boyz-jeeps-lex-coups-bimaz-and-benz-lyrics)
 
 ### 1996
 - Underground Kingz - Fuck my car
