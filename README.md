@@ -88,13 +88,13 @@ Songs where they say the (current) year in the lyrics
 - WuTang - Triumph
 - Lil Keke - Still Pimping The Pens
 
-
 ### 1998
 - Black Star - B Boys Will B Boys
 - Peter and the Test Tube Babies - Twenty Years
 - Mr. Shadow - 61909 [featuring O.D.M.]
 - Rancid - 1998
 - Juvenile - Flossin Season
+- [Snoop Dogg - Hustle & Ball](http://genius.com/Snoop-dogg-hustle-and-ball-lyrics) :: https://youtu.be/ldIGX3gEvk0?t=3m6s
 
 
 ### 1999
