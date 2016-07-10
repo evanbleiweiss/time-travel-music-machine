@@ -38,7 +38,6 @@ Songs where they say the (current) year in the lyrics
 - Big Daddy Kane - Ain't no Half-Steppin
 - [Boogie Down Productions - My Philosophy] (http://genius.com/Boogie-down-productions-my-philosophy-lyrics)
 - [Public Enemy - Don't Believe the Hype]  (http://genius.com/Public-enemy-dont-believe-the-hype-lyrics)
-- [Too $hort - Cusswords](http://genius.com/Too-short-cusswords-lyrics)
 
 ### 1989
 - Public Enemy - Fight the Power
@@ -63,6 +62,7 @@ Songs where they say the (current) year in the lyrics
 - WuTang - Can it all be so simple 
 - Souls of Mischief - 93 'til Infinity
 - Hieroglyphics - You Never Know
+- [Too $hort - Playboy $hort (Get In Where You Fit In)](http://genius.com/Too-short-playboy-short-get-in-where-you-fit-in-lyrics)
 
 ### 1994
 - 69 Boyz - Tootsee Roll
