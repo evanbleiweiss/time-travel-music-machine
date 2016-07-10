@@ -63,6 +63,7 @@ Songs where they say the (current) year in the lyrics
 - Souls of Mischief - 93 'til Infinity
 - Hieroglyphics - You Never Know
 - [Too $hort - Playboy $hort (Get In Where You Fit In)](http://genius.com/Too-short-playboy-short-get-in-where-you-fit-in-lyrics) :: https://youtu.be/m0GFDgbvqGo?t=2m10s
+- [Ice Cube - Check Yo Self ['The Message' Remix]](http://genius.com/Ice-cube-check-yo-self-the-message-remix-lyrics) ::  https://youtu.be/K-LdCBSv4Lk?t=3m42s
 
 ### 1994
 - 69 Boyz - Tootsee Roll
