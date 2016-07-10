@@ -62,7 +62,7 @@ Songs where they say the (current) year in the lyrics
 - WuTang - Can it all be so simple 
 - Souls of Mischief - 93 'til Infinity
 - Hieroglyphics - You Never Know
-- [Too $hort - Playboy $hort (Get In Where You Fit In)](http://genius.com/Too-short-playboy-short-get-in-where-you-fit-in-lyrics)
+- [Too $hort - Playboy $hort (Get In Where You Fit In)](http://genius.com/Too-short-playboy-short-get-in-where-you-fit-in-lyrics) https://youtu.be/m0GFDgbvqGo?t=2m10s
 
 ### 1994
 - 69 Boyz - Tootsee Roll
