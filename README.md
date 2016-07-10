@@ -56,13 +56,13 @@ Songs where they say the (current) year in the lyrics
 ### 1992 
 - A Tribe Called Quest - Scenario (remix)
 - Dr. Dre - Fuck Wit Dre Day (And Everybody's Celebratin') 
-- Dr. Dre - Lyrical Gangbang
+- [Dr. Dre - Lyrical Gangbang](http://genius.com/331514) :: https://youtu.be/onaoNS_A2Og?t=2m48s
 
 ### 1993
 - WuTang - Can it all be so simple 
 - Souls of Mischief - 93 'til Infinity
 - Hieroglyphics - You Never Know
-- [Too $hort - Playboy $hort (Get In Where You Fit In)](http://genius.com/Too-short-playboy-short-get-in-where-you-fit-in-lyrics) https://youtu.be/m0GFDgbvqGo?t=2m10s
+- [Too $hort - Playboy $hort (Get In Where You Fit In)](http://genius.com/Too-short-playboy-short-get-in-where-you-fit-in-lyrics) :: https://youtu.be/m0GFDgbvqGo?t=2m10s
 
 ### 1994
 - 69 Boyz - Tootsee Roll
