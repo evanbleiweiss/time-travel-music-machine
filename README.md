@@ -38,6 +38,7 @@ Songs where they say the (current) year in the lyrics
 - Big Daddy Kane - Ain't no Half-Steppin
 - [Boogie Down Productions - My Philosophy] (http://genius.com/Boogie-down-productions-my-philosophy-lyrics)
 - [Public Enemy - Don't Believe the Hype]  (http://genius.com/Public-enemy-dont-believe-the-hype-lyrics)
+- [Too $hort - Cusswords](http://genius.com/Too-short-cusswords-lyrics)
 
 ### 1989
 - Public Enemy - Fight the Power
