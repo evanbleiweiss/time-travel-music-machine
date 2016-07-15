@@ -46,6 +46,7 @@ Songs where they say the (current) year in the lyrics
 ### 1990
 - Public Enemy - Reggie Jax
 - [Geto Boys - Scarface](http://genius.com/Geto-boys-scarface-lyrics)
+- [DJ Quik - Sweet Black Pussy](http://genius.com/Dj-quik-sweet-black-pussy-lyrics)
 
 ### 1991
 - NWA - Alwayz into somethin
