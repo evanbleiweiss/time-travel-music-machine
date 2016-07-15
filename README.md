@@ -85,7 +85,8 @@ Songs where they say the (current) year in the lyrics
 
 
 ### 1997
-- WuTang - Triumph
+- Wu-Tang - Triumph
+- [Wu-Tang - Wu-Revolution] (http://genius.com/Wu-tang-clan-wu-revolution-lyrics)
 - Lil Keke - Still Pimping The Pens
 
 ### 1998
