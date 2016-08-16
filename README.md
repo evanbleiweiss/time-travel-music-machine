@@ -110,6 +110,9 @@ Songs where they say the (current) year in the lyrics
 ### 2000
 - The Notorious B.I.G. - Notorious B.I.G.* (December 7, 1999)
 
+### 2001
+- [Z-RO - I Found Me] (http://genius.com/Z-ro-i-found-me-lyrics)
+
 ### 2003
 - Eminem - Go to Sleep
 - Lil Kim - The Jump Off 
