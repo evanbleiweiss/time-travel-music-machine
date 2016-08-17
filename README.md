@@ -122,6 +122,7 @@ Songs where they say the (current) year in the lyrics
 ### 2005
 - [Bun B - I'm Ballin'](http://genius.com/Bun-b-im-ballin-lyrics)
 - [The Screwed Up Click - S.U.C. 4 Da 713] (http://genius.com/The-screwed-up-click-suc-4-da-713-lyrics)
+- [Trae tha Truth - What it is] intro off the Later Dayz album
 
 ### 2006
 - [T.I. - I'm Talkin' To You](http://genius.com/Ti-im-talkin-to-you-lyrics)
@@ -142,6 +143,7 @@ Songs where they say the (current) year in the lyrics
 - [Bun B - Chuuch!!!](http://genius.com/Bun-b-chuuch-lyrics)
 - [Bun B - Countin' Money](http://genius.com/Bun-b-countin-money-lyrics)
 - [Lil' Keke - Freestyle](https://www.youtube.com/playlist?list=PL46173933CD154485)
+- [Trae tha Truth - What it is] (http://genius.com/Trae-tha-truth-what-it-is-lyrics)
 
 ### 2013
 - [Travis Barker - Cuz I'm Famous](http://genius.com/Travis-barker-cuz-im-famous-lyrics)
