@@ -106,6 +106,7 @@ Songs where they say the (current) year in the lyrics
 - MF Doom - Rhymes Like Dimes
 - Missy Elliott - Mysterious (Intro)
 - Missy Elliott - Stickin' Chickens
+- [Guerilla Maab - Still Here] (http://genius.com/Guerilla-maab-still-here-lyrics)
 
 ### 2000
 - The Notorious B.I.G. - Notorious B.I.G.* (December 7, 1999)
