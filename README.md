@@ -84,6 +84,7 @@ Songs where they say the (current) year in the lyrics
 - Outkast - 13th Floor/Growing Old
 - Tupac - Picture me Rollin
 - [DJ Screw - Pimp Tha Pen] (http://genius.com/Dj-screw-pimp-tha-pen-lyrics)
+- Nas - The Message :: http://www.youtube.com/watch?v=MeAsv9ZGvoA
 
 
 ### 1997
