@@ -76,6 +76,7 @@ Songs where they say the (current) year in the lyrics
 - 311 - Hive
 - Pharcyde - Runnin
 - [Lost Boyz - Jeeps, Lex Coups, Bimaz & Benz] (http://genius.com/Lost-boyz-jeeps-lex-coups-bimaz-and-benz-lyrics)
+- Skillz - Skillz in '95
 
 ### 1996
 - Underground Kingz - Fuck my car
