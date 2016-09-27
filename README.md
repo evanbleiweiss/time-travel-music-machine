@@ -42,6 +42,7 @@ Songs where they say the (current) year in the lyrics
 ### 1989
 - Public Enemy - Fight the Power
 - [Geto Boys - Seek and Destroy](http://genius.com/Geto-boys-seek-and-destroy-lyrics)
+- Digital Underground - Gutfest '89 (released March 1990)
 
 ### 1990
 - Public Enemy - Reggie Jax
