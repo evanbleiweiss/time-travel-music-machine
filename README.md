@@ -69,6 +69,7 @@ Songs where they say the (current) year in the lyrics
 
 ### 1994
 - 69 Boyz - Tootsee Roll
+- Nas - Represent :: http://www.youtube.com/watch?v=QKYkDwzi-FI
 
 ### 1995
 - Tupac - California Lovin
