@@ -59,6 +59,7 @@ Songs where they say the (current) year in the lyrics
 - A Tribe Called Quest - Scenario (remix)
 - Dr. Dre - Fuck Wit Dre Day (And Everybody's Celebratin') 
 - [Dr. Dre - Lyrical Gangbang](http://genius.com/331514) :: https://youtu.be/onaoNS_A2Og?t=2m48s
+- Nas - Halftime
 
 ### 1993
 - WuTang - Can it all be so simple 
