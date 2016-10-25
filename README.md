@@ -1,5 +1,6 @@
 # time-travel-music-machine
-Songs where they say the (current) year in the lyrics
+Songs where they say the (current) year in the lyrics. 
+Attribution is appreciated if you use this research.
 
 ### 1964
 - Jim Nesbitt - Looking For More In '64
@@ -43,6 +44,7 @@ Songs where they say the (current) year in the lyrics
 - Public Enemy - Fight the Power
 - [Geto Boys - Seek and Destroy](http://genius.com/Geto-boys-seek-and-destroy-lyrics)
 - Digital Underground - Gutfest '89 (released March 1990)
+- Operation Ivy - Freeze Up
 
 ### 1990
 - Public Enemy - Reggie Jax
@@ -61,6 +63,7 @@ Songs where they say the (current) year in the lyrics
 - Dr. Dre - Fuck Wit Dre Day (And Everybody's Celebratin') 
 - [Dr. Dre - Lyrical Gangbang](http://genius.com/331514) :: https://youtu.be/onaoNS_A2Og?t=2m48s
 - Nas - Halftime
+- [Pete Rock & C.L. Smooth - They Reminisce Over You] (T.R.O.Y.)(http://genius.com/Pete-rock-and-cl-smooth-they-reminisce-over-you-troy-lyrics)
 
 ### 1993
 - WuTang - Can it all be so simple 
@@ -114,6 +117,8 @@ Songs where they say the (current) year in the lyrics
 - Missy Elliott - Mysterious (Intro)
 - Missy Elliott - Stickin' Chickens
 - [Guerilla Maab - Still Here] (http://genius.com/Guerilla-maab-still-here-lyrics)
+- [Project Pat - Choppers](http://genius.com/Project-pat-choppers-lyrics)
+- [Will Smith - Will 2K](Will-smith-will-2k-lyrics)
 
 ### 2000
 - The Notorious B.I.G. - Notorious B.I.G.* (December 7, 1999)
