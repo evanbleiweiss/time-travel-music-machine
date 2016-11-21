@@ -76,6 +76,7 @@ Attribution is appreciated if you use this research.
 - 69 Boyz - Tootsee Roll
 - Nas - Represent :: http://www.youtube.com/watch?v=QKYkDwzi-FI
 - Nas - The world is yours (Tip mix) *released on 2013 re-release
+- [The Notorious B.I.G - Big Poppa](http://genius.com/The-notorious-big-big-poppa-lyrics)
 
 ### 1995
 - Tupac - California Lovin
