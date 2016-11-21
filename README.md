@@ -107,7 +107,7 @@ Attribution is appreciated if you use this research.
 - Rancid - 1998
 - Juvenile - Flossin Season
 - [Snoop Dogg - Hustle & Ball](http://genius.com/Snoop-dogg-hustle-and-ball-lyrics) :: https://youtu.be/ldIGX3gEvk0?t=3m6s
-
+- [Lil Troy - Wanna Be a Baller](http://genius.com/998075)
 
 ### 1999
 - Juvenille - Back that ass up (video)
