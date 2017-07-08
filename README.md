@@ -141,6 +141,7 @@ Attribution is appreciated if you use this research.
 
 ### 2006
 - [T.I. - I'm Talkin' To You](http://genius.com/Ti-im-talkin-to-you-lyrics)
+- Ice Cube - Why We Thugs (	Bone Thugs-N-Family album )
 
 ### 2007
 - [Trae the Truth - Picture me Rollin'](https://www.youtube.com/watch?v=OG5-O6pK6CU) _sounds like 2007, not sure_
