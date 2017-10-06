@@ -73,12 +73,14 @@ Attribution is appreciated if you use this research.
 - [Ice Cube - Check Yo Self ['The Message' Remix]](http://genius.com/Ice-cube-check-yo-self-the-message-remix-lyrics) ::  https://youtu.be/K-LdCBSv4Lk?t=3m42s
 - [Snoop Dogg - Who Am I (What's My Name)?](http://genius.com/85610)
 - Snoop Dogg - Gz and Hustlas
+- The Notorious B.I.G. - Ready To Die
 
 ### 1994
 - 69 Boyz - Tootsee Roll
 - Nas - Represent :: http://www.youtube.com/watch?v=QKYkDwzi-FI
 - Nas - The world is yours (Tip mix) *released on 2013 re-release
-- [The Notorious B.I.G - Big Poppa](http://genius.com/The-notorious-big-big-poppa-lyrics)
+- [The Notorious B.I.G. - Big Poppa](http://genius.com/The-notorious-big-big-poppa-lyrics)
+- Craig Mack / LL Cool J / Busta Rhymes / Biggie / Ra - Flava In Ya Ear (Remix)
 
 ### 1995
 - Tupac - California Lovin
@@ -96,7 +98,7 @@ Attribution is appreciated if you use this research.
 - Tupac - Picture me Rollin
 - [DJ Screw - Pimp Tha Pen] (http://genius.com/Dj-screw-pimp-tha-pen-lyrics)
 - Nas - The Message :: http://www.youtube.com/watch?v=MeAsv9ZGvoA
-
+- Jay Z - Brooklyn's Finest
 
 ### 1997
 - Wu-Tang - Triumph
