@@ -51,6 +51,7 @@ Attribution is appreciated if you use this research.
 - [Geto Boys - Scarface](http://genius.com/Geto-boys-scarface-lyrics)
 - [DJ Quik - Sweet Black Pussy](http://genius.com/Dj-quik-sweet-black-pussy-lyrics)
 - [Too $hort - Rap Like Me](http://genius.com/Too-short-rap-like-me-lyrics)
+- [Chubb Rock - Treat 'Em Right](https://genius.com/Chubb-rock-treat-em-right-lyrics)
 
 ### 1991
 - NWA - Alwayz into somethin
