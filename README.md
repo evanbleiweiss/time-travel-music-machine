@@ -90,6 +90,7 @@ Attribution is appreciated if you use this research.
 - Pharcyde - Runnin
 - [Lost Boyz - Jeeps, Lex Coups, Bimaz & Benz](http://genius.com/Lost-boyz-jeeps-lex-coups-bimaz-and-benz-lyrics)
 - Skillz - Skillz in '95
+- BLACK DYNASTY - DEEP EAST OAKLAND (95 STYLE)
 
 ### 1996
 - Underground Kingz - Fuck my car
@@ -101,6 +102,7 @@ Attribution is appreciated if you use this research.
 - [DJ Screw - Pimp Tha Pen](http://genius.com/Dj-screw-pimp-tha-pen-lyrics)
 - Nas - The Message :: http://www.youtube.com/watch?v=MeAsv9ZGvoA
 - Jay Z - Brooklyn's Finest
+- O.F.T.B. - Check Yo Hood
 
 ### 1997
 - Wu-Tang - Triumph
