@@ -75,6 +75,7 @@ Attribution is appreciated if you use this research.
 - [Snoop Dogg - Who Am I (What's My Name)?](http://genius.com/85610)
 - Snoop Dogg - Gz and Hustlas
 - The Notorious B.I.G. - Ready To Die
+- [Loon-e-Toon, Mike T - Inglewoodz Finest](https://genius.com/Loon-e-toon-and-dj-mike-tee-inglewoodz-finast-lyrics)
 
 ### 1994
 - 69 Boyz - Tootsee Roll
