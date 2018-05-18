@@ -88,7 +88,7 @@ Attribution is appreciated if you use this research.
 - Tupac - California Lovin
 - 311 - Hive
 - Pharcyde - Runnin
-- [Lost Boyz - Jeeps, Lex Coups, Bimaz & Benz] (http://genius.com/Lost-boyz-jeeps-lex-coups-bimaz-and-benz-lyrics)
+- [Lost Boyz - Jeeps, Lex Coups, Bimaz & Benz](http://genius.com/Lost-boyz-jeeps-lex-coups-bimaz-and-benz-lyrics)
 - Skillz - Skillz in '95
 
 ### 1996
@@ -98,19 +98,19 @@ Attribution is appreciated if you use this research.
 - Outkast - Decatur Psalm
 - Outkast - 13th Floor/Growing Old
 - Tupac - Picture me Rollin
-- [DJ Screw - Pimp Tha Pen] (http://genius.com/Dj-screw-pimp-tha-pen-lyrics)
+- [DJ Screw - Pimp Tha Pen](http://genius.com/Dj-screw-pimp-tha-pen-lyrics)
 - Nas - The Message :: http://www.youtube.com/watch?v=MeAsv9ZGvoA
 - Jay Z - Brooklyn's Finest
 
 ### 1997
 - Wu-Tang - Triumph
-- [Wu-Tang - Wu-Revolution] (http://genius.com/Wu-tang-clan-wu-revolution-lyrics)
+- [Wu-Tang - Wu-Revolution](http://genius.com/Wu-tang-clan-wu-revolution-lyrics)
 - Lil Keke - Still Pimping The Pens
 
 ### 1998
 - Black Star - B Boys Will B Boys
 - Peter and the Test Tube Babies - Twenty Years
-- Mr. Shadow - 61909 [featuring O.D.M.]
+- Mr. Shadow - 61909 (featuring O.D.M.)
 - Rancid - 1998
 - Juvenile - Flossin Season
 - [Snoop Dogg - Hustle & Ball](http://genius.com/Snoop-dogg-hustle-and-ball-lyrics) :: https://youtu.be/ldIGX3gEvk0?t=3m6s
@@ -123,17 +123,17 @@ Attribution is appreciated if you use this research.
 - MF Doom - Rhymes Like Dimes
 - Missy Elliott - Mysterious (Intro)
 - Missy Elliott - Stickin' Chickens
-- [Guerilla Maab - Still Here] (http://genius.com/Guerilla-maab-still-here-lyrics)
+- [Guerilla Maab - Still Here](http://genius.com/Guerilla-maab-still-here-lyrics)
 - [Project Pat - Choppers](http://genius.com/Project-pat-choppers-lyrics)
 - [Will Smith - Will 2K](Will-smith-will-2k-lyrics)
 
 ### 2000
 - The Notorious B.I.G. - Notorious B.I.G.* (December 7, 1999)
-- [Wu Tang Clan - Conditioner] (http://genius.com/Wu-tang-clan-conditioner-lyrics)
+- [Wu Tang Clan - Conditioner](http://genius.com/Wu-tang-clan-conditioner-lyrics)
 
 ### 2001
-- [Z-Ro - I Found Me] (http://genius.com/Z-ro-i-found-me-lyrics)
-- [Z-Ro - Block Bleeder] (http://genius.com/Z-ro-block-bleeder-lyrics)
+- [Z-Ro - I Found Me](http://genius.com/Z-ro-i-found-me-lyrics)
+- [Z-Ro - Block Bleeder](http://genius.com/Z-ro-block-bleeder-lyrics)
 
 ### 2003
 - Eminem - Go to Sleep
@@ -141,7 +141,7 @@ Attribution is appreciated if you use this research.
 
 ### 2005
 - [Bun B - I'm Ballin'](http://genius.com/Bun-b-im-ballin-lyrics)
-- [The Screwed Up Click - S.U.C. 4 Da 713] (http://genius.com/The-screwed-up-click-suc-4-da-713-lyrics)
+- [The Screwed Up Click - S.U.C. 4 Da 713](http://genius.com/The-screwed-up-click-suc-4-da-713-lyrics)
 - [Trae tha Truth - What it is] intro off the Later Dayz album
 
 ### 2006
@@ -164,7 +164,7 @@ Attribution is appreciated if you use this research.
 - [Bun B - Chuuch!!!](http://genius.com/Bun-b-chuuch-lyrics)
 - [Bun B - Countin' Money](http://genius.com/Bun-b-countin-money-lyrics)
 - [Lil' Keke - Freestyle](https://www.youtube.com/playlist?list=PL46173933CD154485)
-- [Trae tha Truth - What it is] (http://genius.com/Trae-tha-truth-what-it-is-lyrics)
+- [Trae tha Truth - What it is](http://genius.com/Trae-tha-truth-what-it-is-lyrics)
 
 ### 2013
 - [Travis Barker - Cuz I'm Famous](http://genius.com/Travis-barker-cuz-im-famous-lyrics)
