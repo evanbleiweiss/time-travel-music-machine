@@ -108,6 +108,7 @@ Attribution is appreciated if you use this research.
 - Wu-Tang - Triumph
 - [Wu-Tang - Wu-Revolution](http://genius.com/Wu-tang-clan-wu-revolution-lyrics)
 - Lil Keke - Still Pimping The Pens
+- [Celly Cel - Pop the Trunk](https://genius.com/Celly-cel-pop-the-trunk-lyrics)
 
 ### 1998
 - Black Star - B Boys Will B Boys
