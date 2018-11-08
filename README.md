@@ -37,8 +37,8 @@ Attribution is appreciated if you use this research.
 
 ### 1988
 - Big Daddy Kane - Ain't no Half-Steppin
-- [Boogie Down Productions - My Philosophy] (http://genius.com/Boogie-down-productions-my-philosophy-lyrics)
-- [Public Enemy - Don't Believe the Hype]  (http://genius.com/Public-enemy-dont-believe-the-hype-lyrics)
+- [Boogie Down Productions - My Philosophy](http://genius.com/Boogie-down-productions-my-philosophy-lyrics)
+- [Public Enemy - Don't Believe the Hype](http://genius.com/Public-enemy-dont-believe-the-hype-lyrics)
 
 ### 1989
 - Public Enemy - Fight the Power
@@ -80,9 +80,10 @@ Attribution is appreciated if you use this research.
 ### 1994
 - 69 Boyz - Tootsee Roll
 - Nas - Represent :: http://www.youtube.com/watch?v=QKYkDwzi-FI
-- Nas - The world is yours (Tip mix) *released on 2013 re-release
+- Nas - The world is yours (Tip mix) released on 2013 re-release
 - [The Notorious B.I.G. - Big Poppa](http://genius.com/The-notorious-big-big-poppa-lyrics)
 - Craig Mack / LL Cool J / Busta Rhymes / Biggie / Ra - Flava In Ya Ear (Remix)
+- [RBL Possee - On the grind](https://genius.com/Young-cellski-on-the-grind-lyrics)
 
 ### 1995
 - Tupac - California Lovin
