@@ -164,6 +164,7 @@ Attribution is appreciated if you use this research.
 ### 2009
 - Die Antwoord - Enter the Ninja
 - Underground Kingz - Intro
+- MF DOOM - Bumpy's Message
 
 ### 2010
 - [Bun B - Chuuch!!!](http://genius.com/Bun-b-chuuch-lyrics)
