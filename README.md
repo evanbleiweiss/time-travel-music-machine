@@ -15,7 +15,7 @@ Attribution is appreciated if you use this research.
 - Jim Nesbitt - Clean the Slate in '68
 
 ### 1969
-- Iggy Pop - 1969
+- The Stooges - 1969
 
 ### 1970
 - [The Stooges - 1970](https://genius.com/The-stooges-1970-lyrics) _h/t Dakota_
@@ -134,6 +134,7 @@ Attribution is appreciated if you use this research.
 - [Guerilla Maab - Still Here](http://genius.com/Guerilla-maab-still-here-lyrics)
 - [Project Pat - Choppers](http://genius.com/Project-pat-choppers-lyrics)
 - [Will Smith - Will 2K](Will-smith-will-2k-lyrics)
+- [Common, Sadat X, Talib Kweli - 1-9-9-9](https://genius.com/Common-1-9-9-9-lyrics) _h/t Dakota_
 
 ### 2000
 - The Notorious B.I.G. - Notorious B.I.G.* (December 7, 1999)
