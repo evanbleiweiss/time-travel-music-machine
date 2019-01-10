@@ -17,6 +17,9 @@ Attribution is appreciated if you use this research.
 ### 1969
 - Iggy Pop - 1969
 
+### 1970
+- [The Stooges - 1970](https://genius.com/The-stooges-1970-lyrics) _h/t Dakota_
+
 ### 1971
 - Jim Nesbitt - Havin' Fun in '71
 
