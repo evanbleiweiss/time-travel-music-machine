@@ -68,6 +68,7 @@ Attribution is appreciated if you use this research.
 - [Dr. Dre - Lyrical Gangbang](http://genius.com/331514) :: https://youtu.be/onaoNS_A2Og?t=2m48s
 - Nas - Halftime
 - [Pete Rock & C.L. Smooth - They Reminisce Over You (T.R.O.Y.)](http://genius.com/Pete-rock-and-cl-smooth-they-reminisce-over-you-troy-lyrics)
+- Leaders of the New School - Connections - as heard on https://www.nts.live/shows/TED-DRAWS/episodes/ted-draws-15th-january-2019
 
 ### 1993
 - WuTang - Can it all be so simple 
