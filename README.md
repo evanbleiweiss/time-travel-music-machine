@@ -96,7 +96,8 @@ Attribution is appreciated if you use this research.
 - [Lost Boyz - Jeeps, Lex Coups, Bimaz & Benz](http://genius.com/Lost-boyz-jeeps-lex-coups-bimaz-and-benz-lyrics)
 - Skillz - Skillz in '95
 - BLACK DYNASTY - DEEP EAST OAKLAND (95 STYLE)
--  OC Dre - Master Plan :: https://www.youtube.com/watch?v=F3jXT1BmwBU
+- OC Dre - Master Plan :: https://www.youtube.com/watch?v=F3jXT1BmwBU
+- E.S.G. "Swangin' And Bangin'"
 
 ### 1996
 - Underground Kingz - Fuck my car
