@@ -131,7 +131,7 @@ Attribution is appreciated if you use this research.
 - Juvenille - Back that ass up (video)
 - Dr. Dre - Still D.R.E.
 - Mobb Deep - It's Mine
-- MF Doom - Rhymes Like Dimes
+- [MF Doom - Rhymes Like Dimes](https://genius.com/Mf-doom-rhymes-like-dimes-lyrics)
 - Missy Elliott - Mysterious (Intro)
 - Missy Elliott - Stickin' Chickens
 - [Guerilla Maab - Still Here](http://genius.com/Guerilla-maab-still-here-lyrics)
